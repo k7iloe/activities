@@ -1,0 +1,1 @@
+my name is carlo pacana canilao. i am now in college pursuing a degree course of information technology, im already in my 2nd year of college and im greatful to fulfill my dreams slowly but surely. i wanna be a future sea farer and fulfill my parents need. i also have a girlfriend named Christina, she is also pursuing IT in AMA Paranaque near at my school Olivarez College.
